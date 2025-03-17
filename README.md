@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I'm currently learning and looking for opportunities or a Prospect.
+I'm currently learning and looking for a Prospect.
 
 
 ## 🌐 Socials:
